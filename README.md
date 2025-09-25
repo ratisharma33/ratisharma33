@@ -16,7 +16,7 @@ ABOUT ME :
 ## 📫 Connect with Me  
 - LinkedIn: [My LinkedIn profile Link](www.linkedin.com/in/rati-sharma-b6730932a)   
 
-⭐️ *“⭐ “Dream it. Code it. Build it.”.”*  
+⭐ “From logic to creativity — coding is my language.” 
 
 
 
