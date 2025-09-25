@@ -12,7 +12,7 @@ Currently learning C, C++, Java, DBMS, Networking & Web Technologies intrested i
 - **Tools:** Git, GitHub, VS Code,oracle  
 
 
-##  feel free to Connect with Me or collabrate with me let's build something amazing and diffrent together !!
+## “Open to collaboration and networking — let’s build meaningful and innovative projects together.”
 - LinkedIn: [My LinkedIn profile Link](www.linkedin.com/in/rati-sharma-b6730932a)   
 
 ⭐ “From logic to creativity — coding is my language.” 
